@@ -28,4 +28,4 @@ You are responsible for maintaining the confidentiality of your account and pass
 We reserve the right, at our sole discretion, to modify or replace these Terms at any time.
 
 ## 6. Contact Us
-If you have any questions about these Terms, please contact us at: **wvdboogaard@gmail.com**
+If you have any questions about these Terms, please contact us at: **apps.booboo@gmail.com**

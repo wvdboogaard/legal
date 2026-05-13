@@ -31,4 +31,4 @@ Our Service does not address anyone under the age of 13. We do not knowingly col
 
 ## 6. Contact Us
 If you have any questions about this Privacy Policy, please contact us:
-- By email: **wvdboogaard@gmail.com**
+- By email: **apps.booboo@gmail.com**
